@@ -6,5 +6,5 @@ Autores:
 Arthur Reinaldo Limp
 RA: 2840482311019
 
-João Paulo Maia Miranca Campos Pereira
+João Paulo Maia Miranda Campos Pereira
 RA: 2840482311013
